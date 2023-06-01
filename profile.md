@@ -24,7 +24,7 @@ Do đó, việc ký sự lại tất cả những thứ hay ho xung quanh ta là
 
 Ngoài những yếu tố mang tính hàn lâm thì còn thêm các chuyên mục chém gió về cuộc sống, tình yêu, đồng nghiệp, ...
 
-## Nếu thấy chim ưng quá làm sao để ủng hộ tác giả?
+### Nếu thấy chim ưng quá làm sao để ủng hộ tác giả?
 
 Xin mời bạn ghé [Hoa Sơn Tửu Lầu](https://ko-fi.com/vbilltran68) để thưởng thức và đàm đạo :D
 
